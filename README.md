@@ -7,4 +7,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Rifky Tyo, [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/rifky-tyo-ramadhani-santoso-246425250/)).
+* Rifky Tyo, [Linkedin](https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/rifky-tyo-ramadhani-santoso-246425250/)).
